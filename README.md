@@ -1,2 +1,2 @@
-Day 3 assignment 2
+Day 3 assignment 1
 
