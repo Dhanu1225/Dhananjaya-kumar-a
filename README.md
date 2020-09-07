@@ -1,2 +1,2 @@
-# Dhananjaya-kumar-a
-Assignment day2
+Day 3 assignment 2
+
